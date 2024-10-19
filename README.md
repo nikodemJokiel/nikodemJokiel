@@ -10,7 +10,7 @@
   
 - 🌐 I speak:  **English 🇬🇧, Polish 🇵🇱, German 🇩🇪**
 
-- 📫 Contact me:  **nikodem.jokiel@gmail.com**
+- 📫 Contact me:  **jokiel.nikodem@gmail.com**
 
 
 
